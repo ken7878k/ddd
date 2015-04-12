@@ -10,10 +10,6 @@ HHHH
 rwheryh
 22223
 twtqwt
-
-
 tesysysy
-
-
-
 gllllllll
+teeeeeeeeeee
